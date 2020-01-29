@@ -1,0 +1,1 @@
+# Latihan-gimp-2
